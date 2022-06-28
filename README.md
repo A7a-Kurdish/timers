@@ -1,3 +1,3 @@
 # timers
 website timers
-<img src="https://raw.githubusercontent.com/A7a-Kurdish/A7a-Kurdish/main/gif.gif" width="1000" >
+<img src="https://lh3.googleusercontent.com/xuozmn6dbgB__8zDGl92yCq9SsBn4vUBQQ1LoNWfNPko4461rRonp6bJoXpN5TOFLHNsXA=s144" width="1000" >
